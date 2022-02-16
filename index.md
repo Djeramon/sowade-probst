@@ -1,6 +1,6 @@
 ## Hochzeit & Taufe
 
-![Einladungskarten_S2_v01](https://user-images.githubusercontent.com/20990315/154277589-afe5c417-f707-43fa-816e-792b5c1ccc7d.png)
+![Einladungskarten_S2_v01](https://user-images.githubusercontent.com/20990315/154286826-5ec7a6a2-1d3e-4e7b-b7e8-1376c4462819.png)
 
 Wir freuen uns sehr diesen besonderen Tag mit Euch zu feiern. Schaut am besten in den Wochen vor der Feier noch mal hier vorbei, damit Ihr auch sicher die aktuellsten Information habt.
 
@@ -29,4 +29,5 @@ Parkplätze gibt es vor Ort. Wer möchte, kann auch mit der [historischen Bergba
 ### Zeitplan
 
 Coming soon....
+
 
