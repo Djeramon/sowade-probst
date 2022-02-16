@@ -1,37 +1,27 @@
-## Welcome to GitHub Pages Test
+## Willkommen
 
-You can use the [editor on GitHub](https://github.com/Djeramon/sowade-probst/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Hallo und herzlich Willkommen auf der Homepage unserer Familie.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+## Hochzeit
 
-### Markdown
+Hier werdet Ihr immer die aktuellsten Informationen zu unserer anstehenden Hochzeit finden. Die wichtigsten Infos schon mal vorab:
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### Locations
 
-```markdown
-Syntax highlighted code block
+Die Trauung erfolgt in der [Friedenskirche](https://friedensgemeinde-handschuhsheim.de/):
 
-# Header 1
-## Header 2
-### Header 3
+An der Tiefburg 10
+69121 Heidelberg
 
-- Bulleted
-- List
+Die Parkplatzsuche vor Ort kann manchmal schwierig sein, daher plant am besten etwas Zeit hierfür ein.
 
-1. Numbered
-2. List
+Die Feier findet dann im [Schlosshotel Molkenkur](https://www.molkenkur.de/) statt:
 
-**Bold** and _Italic_ and `Code` text
+Klingenteichstr. 31
+69117 Heidelberg
 
-[Link](url) and ![Image](src)
-```
+Parkplätze gibt es vor Ort. Wer möchte, kann auch mit der [historischen Bergbahn](https://www.bergbahn-heidelberg.de/) aus der Alstadt fahren.
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
+### Zeitplan
 
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Djeramon/sowade-probst/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Çoming soon...
