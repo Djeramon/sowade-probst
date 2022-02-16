@@ -2,7 +2,7 @@
 
 ![Einladungskarten_S2_v01](https://user-images.githubusercontent.com/20990315/154277589-afe5c417-f707-43fa-816e-792b5c1ccc7d.png)
 
-Hier werdet Ihr immer die aktuellsten Informationen zu unserer anstehenden Hochzeit finden. Die wichtigsten Infos schon mal vorab:
+Wir freuen uns sehr diesen besonderen Tag mit Euch zu feiern. Schaut am besten in den Wochen vor der Feier noch mal hier vorbei, damit Ihr auch sicher die aktuellsten Information habt.
 
 ### Termin
 
