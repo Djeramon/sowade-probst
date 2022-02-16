@@ -1,7 +1,3 @@
-## Willkommen
-
-Hallo und herzlich Willkommen auf der Homepage unserer Familie.
-
 ## Hochzeit & Taufe
 
 ![Einladungskarten_S2_v01](https://user-images.githubusercontent.com/20990315/154277589-afe5c417-f707-43fa-816e-792b5c1ccc7d.png)
