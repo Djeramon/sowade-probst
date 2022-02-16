@@ -2,11 +2,15 @@
 
 Hallo und herzlich Willkommen auf der Homepage unserer Familie.
 
-## Hochzeit
+## Hochzeit & Taufe
 
 ![Einladungskarten_S2_v01](https://user-images.githubusercontent.com/20990315/154277589-afe5c417-f707-43fa-816e-792b5c1ccc7d.png)
 
 Hier werdet Ihr immer die aktuellsten Informationen zu unserer anstehenden Hochzeit finden. Die wichtigsten Infos schon mal vorab:
+
+### Termin
+
+Wir freuen uns darauf, Euch am **20.08.2022** zu sehen.
 
 ### Locations
 
@@ -28,5 +32,5 @@ Parkplätze gibt es vor Ort. Wer möchte, kann auch mit der [historischen Bergba
 
 ### Zeitplan
 
-Çoming soon...
+Coming soon....
 
