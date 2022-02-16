@@ -8,17 +8,19 @@ Hier werdet Ihr immer die aktuellsten Informationen zu unserer anstehenden Hochz
 
 ### Locations
 
-Die Trauung erfolgt in der [Friedenskirche](https://friedensgemeinde-handschuhsheim.de/):
+Die **Trauung** erfolgt in der [Friedenskirche](https://friedensgemeinde-handschuhsheim.de/):
 
-An der Tiefburg 10
-69121 Heidelberg
+_An der Tiefburg 10 <br>
+69121 Heidelberg_
 
 Die Parkplatzsuche vor Ort kann manchmal schwierig sein, daher plant am besten etwas Zeit hierfür ein.
 
-Die Feier findet dann im [Schlosshotel Molkenkur](https://www.molkenkur.de/) statt:
+<br>
 
-Klingenteichstr. 31
-69117 Heidelberg
+Die **Feier** findet dann im [Schlosshotel Molkenkur](https://www.molkenkur.de/) statt:
+
+_Klingenteichstr. 31 <br>
+69117 Heidelberg_
 
 Parkplätze gibt es vor Ort. Wer möchte, kann auch mit der [historischen Bergbahn](https://www.bergbahn-heidelberg.de/) aus der Alstadt fahren.
 
