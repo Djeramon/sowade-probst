@@ -17,9 +17,9 @@ Bitte gebt uns bis zum **24.06.2022** Rückmeldung ob und mit wie vielen Persone
 
 ### Locations und Zeitplan
 
-Die **Trauung** erfolgt um **15:00 Uhr** in der [Friedenskirche](https://friedensgemeinde-handschuhsheim.de/) (_An der Tiefburg 10, 69121 Heidelberg_). Die Parkplatzsuche vor Ort kann manchmal schwierig sein, daher plant am besten etwas Zeit hierfür ein.
+Die **Trauung und Taufe** erfolgen um **15:00 Uhr** in der [Friedenskirche](https://friedensgemeinde-handschuhsheim.de/) (_An der Tiefburg 10, 69121 Heidelberg_). Die Parkplatzsuche vor Ort kann manchmal schwierig sein, daher plant am besten etwas Zeit hierfür ein.
 
-Im Anschluss an die Trauung findet um **16:00 Uhr** ein kleiner Sektempfang vor der Kirche statt.
+Im Anschluss an den Gottesdienst findet um **16:00 Uhr** ein kleiner Sektempfang vor der Kirche statt.
 
 Ab **17:30** sind im [Schlosshotel Molkenkur](https://www.molkenkur.de/) (_Klingenteichstr. 31, 69117 Heidelberg_) die Tore für uns geöffnet und die Getränke gekühlt. Das Abendessen und die Feier beginnen um **18:30**. Parkplätze gibt es vor Ort. Wer möchte, kann auch mit der [historischen Bergbahn](https://www.bergbahn-heidelberg.de/) aus der Altstadt fahren.
 
@@ -31,3 +31,11 @@ Unser Kontingent im Schlosshotel Molkenkur ist leider bereits vollständig beleg
 - [Goldener Hecht](https://www.hotel-goldener-hecht.de/index.php/de/) (_Steingasse 2, 69117 Heidelberg_)
 - [Krokodil](https://krokodil-heidelberg.de/) (_Kleinschmidtstrasse 12, 69115 Heidelberg_)
 - [Parkhotel Atlantic](https://krokodil-heidelberg.de/) (_Schloß-Wolfsbrunnen-Weg 23, 69118 Heidelberg_)
+
+### Eure Beiträge
+
+Bitte stimmt Beiträge mit unseren Trauzeugen Julia und Philipp ab, damit der Ablauf reibungslos klappt. Über _keine_ Hochzeitsspiele würden wir uns freuen. :-)
+
+### Geschenke
+
+Mit Euch zu feiern ist für uns das größte Geschenk. Wenn Ihr uns dennoch etwas schenken möchtet, würden wir uns über einen Zuschuss zu unserer Hochzeitsreise freuen, welche unter dem Motto _Glamping in Südfrankreich_ stattfindet.
