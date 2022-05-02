@@ -27,6 +27,7 @@ Ab **17:30** sind im [Schlosshotel Molkenkur](https://www.molkenkur.de/) (_Kling
 
 Unser Kontingent im Schlosshotel Molkenkur ist leider bereits vollständig belegt, aber in der Heidelberger Alt- und Weststadt gibt es jede Menge Übernachtungsmöglichkeiten, die schnell mit dem Auto oder Taxi zu erreichen sind, zum Beispiel:
 
+- [Premier Inn (Zentrum)](https://www.google.com/travel/hotels/s/graA23xdPZFLfgTP6) (_Kurfürstenanlage 23, 69115 Heidelberg_)
 - [Hackteufel](https://www.hackteufel.de/de/index.html) (_Steingasse 7, 69117 Heidelberg_)
 - [Goldener Hecht](https://www.hotel-goldener-hecht.de/index.php/de/) (_Steingasse 2, 69117 Heidelberg_)
 - [Krokodil](https://krokodil-heidelberg.de/) (_Kleinschmidtstrasse 12, 69115 Heidelberg_)
