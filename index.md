@@ -2,26 +2,30 @@
 
 ![Einladungskarten_S2_v01](https://user-images.githubusercontent.com/20990315/154286826-5ec7a6a2-1d3e-4e7b-b7e8-1376c4462819.png)
 
-Wir freuen uns sehr diesen besonderen Tag mit Euch zu feiern. Schaut am besten in den Wochen vor der Feier noch mal hier vorbei, damit Ihr auch sicher die aktuellsten Information habt.
+Wir freuen uns sehr diesen besonderen Tag mit Euch zu feiern. Die letzten Vorbereitungen laufen und unten findet Ihr den genauen Ablaufplan und einige wichtige Hinweise.
 
-### Termin
+### Wichtige Infos:
 
-Wir freuen uns darauf, Euch am **20.08.2022** zu sehen.
+- Alle, die gerne das vegetarische Menü möchten, schicken bitte bis zum **01.08.2022** einen Einzeiler per WhatsApp oder SMS an Stephan (+49 151 4122 7917).
+- Bei der [Friedenskirche](https://friedensgemeinde-handschuhsheim.de/) ist die Parkplatzsituation sehr schwierig, daher bringt bitte genug Zeit für die Parkplatzsuche mit. Der einzige öffentliche Parkplatz in der Nähe ist der [Parkplatz am Handschuhsheimer Friedhof](https://goo.gl/maps/4hQS5TpaDJnXMsS87) (ca. 500 Meter Fußweg).
+- Um ca. 18:15 Uhr möchten wir ein Gruppenbild auf der Terrasse der Molkenkur machen.
 
-### Rückmeldung
+### Ablaufplan
 
-Bitte gebt uns bis zum **24.06.2022** Rückmeldung ob und mit wie vielen Personen Ihr kommen könnt. Entweder telefonisch, via WhatsApp oder per Email an:
+Da eine der Hauptpersonen des Tages noch gestillt wird, sind die Zeitangaben mit Vorsicht zu genießen. Kleinere und größere Verschiebungen sind möglich. ;-)
 
-- Ramona / 01728135983 / ramonasowade@gmail.com
-- Stephan / 015141227917 / steph.probst@gmail.com
-
-### Locations und Zeitplan
-
-Die **Trauung und Taufe** erfolgen um **15:00 Uhr** in der [Friedenskirche](https://friedensgemeinde-handschuhsheim.de/) (_An der Tiefburg 10, 69121 Heidelberg_). Die Parkplatzsuche vor Ort kann manchmal schwierig sein, daher plant am besten etwas Zeit hierfür ein.
-
-Im Anschluss an den Gottesdienst findet um **16:00 Uhr** ein kleiner Sektempfang vor der Kirche statt.
-
-Ab **17:30** sind im [Schlosshotel Molkenkur](https://www.molkenkur.de/) (_Klingenteichstr. 31, 69117 Heidelberg_) die Tore für uns geöffnet und die Getränke gekühlt. Das Abendessen und die Feier beginnen um **18:30**. Parkplätze gibt es vor Ort. Wer möchte, kann auch mit der [historischen Bergbahn](https://www.bergbahn-heidelberg.de/) aus der Altstadt fahren.
+Uhrzeit | Programmpunkt | Ort und Details
+-------- | -------- | --------
+**15:00 Uhr** | **Trauung und Taufe** | [Friedenskirche](https://friedensgemeinde-handschuhsheim.de/) (_An der Tiefburg 10, 69121 Heidelberg_).
+**16:00 Uhr** | **Kleiner Sektempfang** | Direkt hinter der Friedenskirche vor dem Eingang zum Gemeindehaus
+**17:00 Uhr** | **Ende Sektempfang & Umzug zur Molkenkur** | [Schlosshotel Molkenkur](https://www.molkenkur.de/) (_Klingenteichstr. 31, 69117 Heidelberg_). Es gibt ausreichend Parkplätze vor Ort.
+**17:30 Uhr** | **Aperitif und Fotos** | Terrasse des Schlosshotel Molkenkur. Details zum Fotoshoot gibt es [hier](/fotoshoot.html).
+**18:30 Uhr** | **Abendessen** | Spiegelsaal des Schlosshotel Molkenkur
+**20:00 Uhr** | **Sundowner** | Terrasse des Schlosshotel Molkenkur
+**21:00 Uhr** | **Anschneiden der Hochzeitstorte & Nachtisch** | Spiegelsaal des Schlosshotel Molkenkur
+**22:00 Uhr** | **Hochzeitstanz zur Eröffnung der Party** | Spiegelsaal des Schlosshotel Molkenkur. Hier gesellen sich einige zusätzliche Gäste zur Party.
+**23:30 Uhr** | **Mitternachtsimbiss** | Spiegelsaal des Schlosshotel Molkenkur
+**02:30 Uhr** | **Ende der _offiziellen_ Party** | Spiegelsaal des Schlosshotel Molkenkur
 
 ### Übernachtung
 
