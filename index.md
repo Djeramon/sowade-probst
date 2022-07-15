@@ -38,6 +38,12 @@ Unser Kontingent im Schlosshotel Molkenkur ist leider bereits vollständig beleg
 - [Krokodil](https://krokodil-heidelberg.de/) (_Kleinschmidtstrasse 12, 69115 Heidelberg_)
 - [Parkhotel Atlantic](https://krokodil-heidelberg.de/) (_Schloß-Wolfsbrunnen-Weg 23, 69118 Heidelberg_)
 
+
+### Gästebuch
+
+Da unsere Hochzeit unter dem Motto _"Wo Wege sich treffen entstehen Geschichten"_ stattfindet, würden wir uns freuen, wenn Ihr in dem ausliegenden Gästebuch eine kleine Geschichte mit uns teilt, die Euch besonders mit uns oder einem von uns verbindet.
+
+
 ### Eure Beiträge
 
 Bitte stimmt Beiträge mit unseren Trauzeugen Julia und Philipp ab, damit der Ablauf reibungslos klappt. Über _keine_ Hochzeitsspiele würden wir uns freuen. :-)
