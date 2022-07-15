@@ -1,2 +1,4 @@
 theme: jekyll-theme-cayman
 title: Familie Sowade & Probst
+plugins:
+  - jemoji
