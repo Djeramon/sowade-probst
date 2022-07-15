@@ -46,7 +46,7 @@ Da unsere Hochzeit unter dem Motto _"Wo Wege sich treffen entstehen Geschichten"
 
 ### Eure Beiträge
 
-Bitte stimmt Beiträge mit unseren Trauzeugen Julia und Philipp ab, damit der Ablauf reibungslos klappt. Über _keine_ Hochzeitsspiele würden wir uns freuen. :-)
+Bitte stimmt Beiträge mit unseren Trauzeugen Julia und Philipp ab, damit der Ablauf reibungslos klappt. Über _keine_ Hochzeitsspiele würden wir uns freuen. :slightly_smiling_face:
 
 ### Geschenke
 
