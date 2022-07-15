@@ -2,7 +2,7 @@
 
 ![Einladungskarten_S2_v01](https://user-images.githubusercontent.com/20990315/154286826-5ec7a6a2-1d3e-4e7b-b7e8-1376c4462819.png)
 
-Wir freuen uns sehr diesen besonderen Tag mit Euch zu feiern. Die letzten Vorbereitungen laufen und unten findet Ihr den genauen Ablaufplan und einige wichtige Hinweise.
+Wir freuen uns sehr diesen besonderen Tag mit Euch zu feiern. Die letzten Vorbereitungen laufen und unten findet Ihr den genauen Ablaufplan sowie einige wichtige Hinweise.
 
 ### Wichtige Infos:
 
@@ -17,16 +17,18 @@ Da eine der Hauptpersonen des Tages noch gestillt wird, sind die Zeitangaben mit
 
 Uhrzeit | Programmpunkt | Ort und Details
 -------- | -------- | --------
-**15:00 Uhr** | **Trauung und Taufe :church:** | [Friedenskirche](https://friedensgemeinde-handschuhsheim.de/) (_An der Tiefburg 10, 69121 Heidelberg_).
-**16:00 Uhr** | **Kleiner Sektempfang :clinking_glasses:** | Direkt hinter der Friedenskirche vor dem Eingang zum Gemeindehaus
-**17:00 Uhr** | **Ende Sektempfang & Umzug zur Molkenkur :car:** | [Schlosshotel Molkenkur](https://www.molkenkur.de/) (_Klingenteichstr. 31, 69117 Heidelberg_). Es gibt ausreichend Parkplätze vor Ort.
-**17:30 Uhr** | **Aperitif und Fotos 	:cocktail::camera_flash:** | Terrasse des Schlosshotel Molkenkur. Details zum Fotoshoot gibt es [hier](/fotoshoot.html).
-**18:30 Uhr** | **Abendessen 	:shallow_pan_of_food:** | Spiegelsaal des Schlosshotel Molkenkur
-**20:00 Uhr** | **Sundowner :tropical_drink:** | Terrasse des Schlosshotel Molkenkur
-**21:00 Uhr** | **Anschneiden der Hochzeitstorte & Nachtisch :cake:** | Spiegelsaal des Schlosshotel Molkenkur
-**22:00 Uhr** | **Hochzeitstanz zur Eröffnung der Party :dancers:** | Spiegelsaal des Schlosshotel Molkenkur. Hier gesellen sich einige zusätzliche Gäste zur Party.
-**23:30 Uhr** | **Mitternachtsimbiss :hotdog:** | Spiegelsaal des Schlosshotel Molkenkur
-**02:30 Uhr** | **Ende der _offiziellen_ Party :sleeping:** | Spiegelsaal des Schlosshotel Molkenkur
+**15:00** | **Trauung und Taufe :church:** | [Friedenskirche](https://friedensgemeinde-handschuhsheim.de/) (_An der Tiefburg 10, 69121 Heidelberg_).
+**16:00** | **Kleiner Sektempfang :clinking_glasses:** | Direkt hinter der Friedenskirche vor dem Eingang zum Gemeindehaus
+**17:00** | **Ende Sektempfang & Umzug zur Molkenkur :car:** | [Schlosshotel Molkenkur](https://www.molkenkur.de/) (_Klingenteichstr. 31, 69117 Heidelberg_). Es gibt ausreichend Parkplätze vor Ort.
+**17:30** | **Aperitif und Fotos 	:cocktail::camera_flash:** | Terrasse des Schlosshotel Molkenkur. Details zum Fotoshoot gibt es [hier](/fotoshoot.html).
+**18:30** | **Abendessen 	:shallow_pan_of_food:** | Spiegelsaal des Schlosshotel Molkenkur
+**20:00** | **Sundowner :tropical_drink:** | Terrasse des Schlosshotel Molkenkur
+**21:00** | **Anschneiden der Hochzeitstorte & Nachtisch :cake:** | Spiegelsaal des Schlosshotel Molkenkur
+**22:00** | **Hochzeitstanz zur Eröffnung der Party :dancers:** | Spiegelsaal des Schlosshotel Molkenkur. Hier gesellen sich einige zusätzliche Gäste zur Party.
+**23:30** | **Mitternachtsimbiss :hotdog:** | Spiegelsaal des Schlosshotel Molkenkur
+**02:30** | **Ende der _offiziellen_ Party :sleeping:** | Spiegelsaal des Schlosshotel Molkenkur
+
+Für die Übernachtungsgäste im Molkenkur Hotel: Gemeinsames Frühstück planen wir ab ca. 8 Uhr morgens. Die Zimmer müssen bis 11 Uhr geräumt werden.
 
 ### Übernachtung
 
@@ -38,11 +40,12 @@ Unser Kontingent im Schlosshotel Molkenkur ist leider bereits vollständig beleg
 - [Krokodil](https://krokodil-heidelberg.de/) (_Kleinschmidtstrasse 12, 69115 Heidelberg_)
 - [Parkhotel Atlantic](https://krokodil-heidelberg.de/) (_Schloß-Wolfsbrunnen-Weg 23, 69118 Heidelberg_)
 
+Die Heidelberger Taxizentrale ist über die Rufnummer 06221 302030 zu erreichen. Ihr könnt aber auch bei der Rezeption der Molkenkur ein Taxi bestellen.
+
 
 ### Gästebuch
 
 Da unsere Hochzeit unter dem Motto _"Wo Wege sich treffen entstehen Geschichten"_ stattfindet, würden wir uns freuen, wenn Ihr in dem ausliegenden Gästebuch eine kleine Geschichte mit uns teilt, die Euch besonders mit uns oder einem von uns verbindet.
-
 
 ### Eure Beiträge
 
@@ -50,4 +53,4 @@ Bitte stimmt Beiträge mit unseren Trauzeugen Julia und Philipp ab, damit der Ab
 
 ### Geschenke
 
-Mit Euch zu feiern ist für uns das größte Geschenk. Wenn Ihr uns dennoch etwas schenken möchtet, würden wir uns über einen Zuschuss zu unserer Hochzeitsreise freuen, welche unter dem Motto _Glamping in Südfrankreich_ stattfindet.
+Mit Euch zu feiern ist für uns das größte Geschenk. Wenn Ihr uns dennoch etwas schenken möchtet, würden wir uns über einen Zuschuss zu unserer Hochzeitsreise freuen, welche unter dem Motto _Mit dem Camper durch Südfrankreich_ stattfindet.
