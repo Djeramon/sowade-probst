@@ -7,7 +7,7 @@ Wir freuen uns sehr diesen besonderen Tag mit Euch zu feiern. Die letzten Vorber
 ### Wichtige Infos:
 
 - Alle, die gerne das vegetarische Menü möchten, schicken bitte bis zum **01.08.2022** einen Einzeiler per WhatsApp oder SMS an Stephan (+49 151 4122 7917). Die Menüoptionen seht Ihr [hier](/menu_options.html). Die bereits registrierten Vegetarier (keine Nachricht mehr nötig) sind [hier](/vegetarier.html) aufgelistet.
-- Bei der [Friedenskirche](https://goo.gl/maps/cRHiCzMk8HZZaini7) ist die Parkplatzsituation sehr schwierig, daher bringt bitte genug Zeit für die Parkplatzsuche mit. Der einzige öffentliche Parkplatz in der Nähe ist der [Parkplatz am Handschuhsheimer Friedhof](https://goo.gl/maps/4hQS5TpaDJnXMsS87) (ca. 500 Meter Fußweg).
+- Bei der [Friedenskirche](https://goo.gl/maps/cRHiCzMk8HZZaini7) ist die Parkplatzsituation sehr schwierig, daher bringt bitte genug Zeit für die Parkplatzsuche mit. Der einzige öffentliche Parkplatz in der Nähe ist der [Parkplatz am Handschuhsheimer Friedhof](https://goo.gl/maps/4hQS5TpaDJnXMsS87) (ca. 500 Meter Fußweg). Wer einen Parkplatz am Straßenrand ergattert: Mit Parkscheibe darf man 2 Stunden gratis stehen.
 - Während der Kirche möchten wir Euch bitten die Handys und Kameras in den Taschen zu lassen. Unser Fotograf Simon wird dort jede Menge Bilder machen und wir möchten, dass alle Gäste die Zeremonie ungestört genießen können. 
 - Wir bitten alle Gäste vor der Veranstaltung einen **Corona-Test** zu machen, damit wir unbeschwert und sicher feiern können.
 - Um ca. 18:15 Uhr möchten wir ein Gruppenbild auf der Terrasse der Molkenkur machen.
