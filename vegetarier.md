@@ -2,4 +2,7 @@ Von den folgenden Personen haben wir schon die Info bekommen, dass Sie das veget
 
 - Sanam
 - Franzi
+- Lea
+- Sophie
+- Anna-Lena
 - Christian, Jessi und Tom
